@@ -1,3 +1,3 @@
-# Stephen-Charles-Cole.github.io
+# Stephen Cole
 Historian
 
